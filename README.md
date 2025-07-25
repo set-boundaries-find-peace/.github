@@ -1,1 +1,3 @@
-# .github
+# *Set Boundaries Find Peace*
+## *In a world that often demands more from us—more time, more energy, and more compromises—it’s easy to lose sight of what truly matters. But here’s the truth: setting boundaries is not about being selfish; it’s about self-care. It’s about honoring your needs, respecting your limits, and creating space for peace in your life. Setting boundaries is an act of love—not just for others, but for yourself. It’s about creating a life that feels aligned, fulfilling, and peaceful. So, take a deep breath, trust your instincts, and begin the beautiful journey of setting boundaries today.* [More details…](https://spiritualkhazaana.com/web-stories/set-boundaries-find-peace/)
+## #Settingboundaries #Selfcare #Emotionalwellbeing #Personalgrowth #Mindfulness #Digitaldetox #Selflove #Innerpeace #Spiritualgrowth #Motivationaltips #Inspirationalstories #Findingbalance #Assertiveness #Mentalhealth
